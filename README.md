@@ -5,7 +5,7 @@
 Aaron Arias Vales
 Dustin Tidmore
 Kennedy Thomas
-----------------------------
+
 Professor: Dr. Jacobs
 
 
