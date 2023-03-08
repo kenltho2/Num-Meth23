@@ -3,7 +3,7 @@
 ### collaborators include: Aaron Arias Vales, Dustin Tidmore, Kennedy Thomas
 ----------------------------
 
-Professor: Dr. Jacobs
+Professor: Dr. Jacob
 
 
 
